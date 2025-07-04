@@ -62,7 +62,3 @@ Our website is not intended for children under the age of 13. We do not knowingl
 
 Changes to this Privacy Policy
 We may update this Privacy Policy from time to time. We will post the updated Privacy Policy on our website and the effective date of the updated Privacy Policy will be noted. We encourage you to review this Privacy Policy periodically.
-
-Contact Us
-If you have any questions or concerns about this Privacy Policy, please contact us at the following email address: mr_djoker@outlook.com.
-
